@@ -1,2 +1,7 @@
 # Pain-Equals-gain
-Gym Jims adventure
+Upload yo stuff 
+
+Game names:
+Gym jim adventure
+Gym jim journey
+No pain no gain
